@@ -1,5 +1,5 @@
 # Akemi
-Sc Ini Tidak Boleh Di Jual Kembali Ingat!!!
+Sc Ini Tidak Boleh Di Jual Ingat!!!
 
 Sc Free Dan Bisa Di Pakai ManaPun!!
 Media Social Admin: 
